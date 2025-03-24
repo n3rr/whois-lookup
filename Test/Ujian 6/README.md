@@ -1,2 +1,0 @@
-gambar
-https://cdn.discordapp.com/attachments/1272797870344372277/1353768629447168210/image_fx__6.png?ex=67e2dac9&is=67e18949&hm=713850a2747410cd502da4bfef07db797663afd8ae85e100296e6acb97c24760&
